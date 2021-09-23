@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @X0t0
 - 👀 I’m interested in Getting more in my Pocket 
-- 🌱 I’m currently learning how to make them
-- 💞️ I’m looking to collaborate on 
+- 🪦 Born for a reason. Succeed Or Die.
 - 📫 How to reach me Telegram : ImX0t0
 
 <!---
